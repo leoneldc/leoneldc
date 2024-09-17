@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚I am currently in my last year of my university degree.<br>🏫I am studying information systems engineering and computer science.<br>🏅I have led several work modules for university projects.<br>💻Learning new technologies is a motivation for me.<br>🧠I adapt to different situations.<br>🎊I am currently 22 years old.
+📚I am bachelor of information systems and computer science.<br>🏅I have led several work modules for university projects.<br>💻Learning new technologies is a motivation for me.<br>🧠I adapt to different situations.<br>🎊I am currently 23 years old.
 
 
 ## 🌐 Socials:
